@@ -1,4 +1,4 @@
-
+steal the brainrot base updated Scripts is the best steal the brainrot base Script, featuring fly and auto-farm. Safe and powerful for all your needs.
 
 
 
